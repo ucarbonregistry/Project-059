@@ -47,6 +47,8 @@ CoU's Available 14,221
 __________________________________________
 
 TOTAL COUs ISSUED: 81406 COUs
+
 UCR Fees 5% of Total Credits Issued
+
 Total Member Holding: 77,336 COUs
 

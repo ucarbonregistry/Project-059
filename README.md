@@ -4,6 +4,7 @@ The proposed project activity with title under UCR “5 MW (2 x 2.5 MW) Small Sc
 
 
 PUBLIC ISSUANCE RECORDS
+
 Serial Number: 0001-000001-007148-UCR-CoU-IN-059-02062017-31122017
 
 Vintage Year 2017
